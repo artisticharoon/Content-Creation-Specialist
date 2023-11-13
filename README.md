@@ -1,5 +1,7 @@
-![thumbnail_![thumb2_00000](https://github.com/artisticharoon/Content-Creation-Specialist/assets/150673474/420eb4da-44fe-4d3d-b92e-43575400f726)
-00000](https://github.com/artisticharoon/Content-Creation-Specialist/assets/150673474/1e4ae50f-7e2e-4067-8637-aab92a365e65)
+
+![thumbnail_00000](https://github.com/artisticharoon/Content-Creation-Specialist/assets/150673474/7fe2ec79-e729-4491-bf23-1809823ff626)
+![thumb2_00000](https://github.com/artisticharoon/Content-Creation-Specialist/assets/150673474/8dd94cd3-e865-4b52-ac72-595dcb01f225)
+
 LINK: https://www.fiverr.com/s/rDKlkP
 
 Your Personal Short Form Content Specialist Here!
